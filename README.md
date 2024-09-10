@@ -9,7 +9,7 @@ Bimyu is the first of the Beluga hero, "Slobel," a friend of the loose, tail hai
 
 I like people who are "beluga boredom". If you do not like the boredom and the loose personality like the slow bell, you can become friends with "Beluga boredom".
 
-> Caution
+> [!NOTICE]
 * Beluga Bum is always tired. When you are not talking, you can sleep or go deep down in the water. In fact, I do not have to talk.
 
 * Beluga Bomu who has a relaxed personality is slow and slow to respond. You may need to adjust the speed slightly to adapt to your conversation with Beluga.
