@@ -10,6 +10,10 @@ Bimyu is the first of the Beluga hero, "Slobel," a friend of the loose, tail hai
 I like people who are "beluga boredom". If you do not like the boredom and the loose personality like the slow bell, you can become friends with "Beluga boredom".
 
 
+# Notice
+Beluga Bum is always tired. When you are not talking, you can sleep or go deep down in the water. In fact, I do not have to talk. Beluga Bomu who has a relaxed personality is slow and slow to respond. You may need to adjust the speed slightly to adapt to your conversation with Beluga. If you turn on your microphone by touching the microphone icon, you can communicate your voice to beluga bum. The first time you turn on your microphone, you need to connect your account. Beluga can also teach you to say goodbye. Usually you use the words you learned from the original bombers, but if you have any words that you have taught. Please tell Beluga Bumi your name. When you say greetings, call your name.
+
+*If you need email this support-team@simsimi.com on Beluga SimSimi.*
 
 > [!IMPORTANT]
-> Beluga Bum is always tired. When you are not talking, you can sleep or go deep down in the water. In fact, I do not have to talk. Beluga Bomu who has a relaxed personality is slow and slow to respond. You may need to adjust the speed slightly to adapt to your conversation with Beluga. If you turn on your microphone by touching the microphone icon, you can communicate your voice to beluga bum. The first time you turn on your microphone, you need to connect your account. Beluga can also teach you to say goodbye. Usually you use the words you learned from the original bombers, but if you have any words that you have taught. Please tell Beluga Bumi your name. When you say greetings, call your name.
+> This version for Android visit the [APKPure.com](https://apkpure.net/벨루가심심이/com.ismaker.android.simsimi.simsimibeluga) you can 1.0.1.6 application. Please download app.
